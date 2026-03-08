@@ -1,3 +1,3 @@
 <p align="center">
   
-![Image](https://github.com/user-attachments/assets/a8f0c78a-7025-4a24-93da-e8784ba45056)
+![Image](https://github.com/user-attachments/assets/f1cd1355-9c3a-4836-86b2-ec7f116260cb)
