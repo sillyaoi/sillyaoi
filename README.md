@@ -4,7 +4,7 @@
 
 <p align="center">
 <a href="https://supersillyaoi.straw.page" target="_blank">strawpage ! </a>
-
+<p align="center">
 <a href="https://silliestyaoi.carrd.co/" target="_blank">carrd ! </a>
-
+<p align="center">
 <a href="yaoisilly.atabook.org" target="_blank">atabook ! </a> 
