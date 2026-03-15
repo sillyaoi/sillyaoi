@@ -1,6 +1,8 @@
 <p align="center">
   
-![Image](https://github.com/user-attachments/assets/f1cd1355-9c3a-4836-86b2-ec7f116260cb)
+![Image](https://github.com/user-attachments/assets/76597a4e-ab31-4a15-be47-b00245f62f4e)
+
+<p align="center">
 
 <a href="https://supersillyaoi.straw.page" target="_blank">strawpage ! </a>
 
