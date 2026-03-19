@@ -1,6 +1,6 @@
 <p align="center">
   
-  ![Image](https://github.com/user-attachments/assets/d53140d0-ec23-4291-8cc2-8a6951c297c7)
+  ![Image](https://github.com/user-attachments/assets/0f5503fc-06f3-407a-9e25-3edeb0e68139)
 <p align="center">
 <a href="https://sillyaoiss.straw.page" target="_blank">strawpage ! </a>
   
