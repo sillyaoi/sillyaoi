@@ -5,3 +5,6 @@
   
 <p align="center">
 <a href="https://yaoisilly.atabook.org/" target="_blank">atabook ! </a> 
+
+<p align="center">
+<a href="https://rentry.co/chuusan" target="_blank">rentry ! </a>
