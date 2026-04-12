@@ -8,3 +8,5 @@
 
 <p align="center">
 <a href="https://rentry.co/chuusan" target="_blank">rentry ! </a>
+
+![Profile Views](https://komarev.com/ghpvc/?username=YOUR_USERNAME&color=blue)
