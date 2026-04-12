@@ -4,7 +4,7 @@
 
   
 <p align="center">
-<a href="https://yaoisilly.atabook.org/" target="_blank">ata </a> book
+<a href="https://hondakikus.atabook.org/" target="_blank">ata </a> book
 
 <p align="center">
 <a href="https://rentry.co/chuusan" target="_blank">rent </a> ry
