@@ -12,4 +12,5 @@
 <p align="center">
 <a href="https://sillyaoiss.straw.page" target="_blank">straw </a> page 
 
-  $\color{light blue}{Reworking \space my \space straw \space oml}$ 
+<p align="center">
+  \color{blue}{Reworking \space my \space straw \space oml}
