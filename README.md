@@ -12,4 +12,4 @@
 
 <p align="center">
    
-   ![Image](https://github.com/user-attachments/assets/37b0e4ea-ad8b-413e-8026-7b8f68ad5427)
+<img width="540" height="306" alt="Image" src="https://github.com/user-attachments/assets/332a25e0-8a27-4867-9eab-782a45a7b58f" />
