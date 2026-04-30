@@ -6,8 +6,10 @@
 
 <p align="center">
 <a href="https://supersillyaoi.straw.page" target="_blank">straw </a> page 
+   
+![Visitors](https://komarev.com/ghpvc/?username=sillyaoi&label=(^o^♪)Nihon-san&color=cbe2f8) ㅤ ‎ ‎ ‎ ‎ ㅤ ‎ ‎ ‎ㅤ ‎ ‎ ‎ ‎ ㅤ ‎ ‎ ‎ ִ ✦
 
-![](https://komarev.com/ghpvc/?username=sillyaoi)
 
 <p align="center">
+   
    ![Image](https://github.com/user-attachments/assets/37b0e4ea-ad8b-413e-8026-7b8f68ad5427)
