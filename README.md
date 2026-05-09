@@ -5,7 +5,7 @@
 <a href="https://rentry.co/nihonsann" target="_blank">rent </a> ry
 
 <p align="center">
-<a href="https://supersillyaoi.straw.page" target="_blank">straw </a> page 
+<a href="https://romatoesz.straw.page"target="_blank">straw </a> page 
    
 ![Visitors](https://komarev.com/ghpvc/?username=sillyaoi&label=(^o^♪)Nihon-san&color=cbe2f8) ㅤ ‎ ‎ ‎ ‎ ㅤ ‎ ‎ ‎ㅤ ‎ ‎ ‎ ‎ ㅤ ‎ ‎ ‎ ִ ✦
 
