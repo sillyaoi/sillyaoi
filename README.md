@@ -1,15 +1,16 @@
-![Image](https://github.com/user-attachments/assets/b605b554-b6db-43ea-a63b-3f37b12b9942) 
+<img width="385" height="143" alt="Image" src="https://github.com/user-attachments/assets/de5c7b14-1718-4df8-902e-8be3820f9ea9" />
+
+
 
 <p align="center">
-<a href="https://hondakikus.atabook.org/" target="_blank">ata </a> book ㅤ ‎ ‎ ‎ ‎  ‎♡ㅤ  ㅤ ‎ ‎ ‎
-<a href="https://rentry.co/nihonsann" target="_blank">rent </a> ry
-
-<p align="center">
+<a href="https://hondakikus.atabook.org/" target="_blank">ata </a> book‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ♡ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ 
 <a href="https://kiikus.straw.page"target="_blank">straw </a> page 
+
    
-![Visitors](https://komarev.com/ghpvc/?username=sillyaoi&label=(^o^♪)Nihon-san&color=cbe2f8) ㅤ ‎ ‎ ‎ ‎ ㅤ ‎ ‎ ‎ㅤ ‎ ‎ ‎ ‎ ㅤ ‎ ‎ ‎ ִ ✦
+![Visitors](https://komarev.com/ghpvc/?username=sillyaoi&label=(^o^♪)losers&color=FD8018) ㅤ ‎ ‎ ‎ ‎ ㅤ ‎ ‎ ‎ㅤ ‎ ‎ ‎ ‎ ㅤ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ִ ✦
+
 
 
 <p align="center">
    
-<img width="540" height="306" alt="Image" src="https://github.com/user-attachments/assets/332a25e0-8a27-4867-9eab-782a45a7b58f" />
+<img width="854" height="480" alt="Image" src="https://github.com/user-attachments/assets/b6cc75b3-d71a-4eec-a000-5359a8d4c742" />
