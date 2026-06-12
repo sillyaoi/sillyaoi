@@ -14,7 +14,3 @@
 ![Visitors](https://komarev.com/ghpvc/?username=sillyaoi&label=losers&color=0E0D15) ㅤ ‎ ‎ ‎ ‎ ㅤ ‎ ‎ ‎ㅤ ‎ ‎ ‎ ‎ ㅤ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ִ ✦
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ︶⊹︶︶୨୧︶︶⊹︶
-
-<p align="center">
-   
-<img width="854" height="480" alt="Image" src="https://github.com/user-attachments/assets/b6cc75b3-d71a-4eec-a000-5359a8d4c742" />
