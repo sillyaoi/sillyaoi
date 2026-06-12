@@ -11,7 +11,7 @@
 <a href="https://rentry.co/silverguns" target="_blank">ren </a> try  ‎
 
    
-![Visitors](https://komarev.com/ghpvc/?username=sillyaoi&label=losers&color=00000) ㅤ ‎ ‎ ‎ ‎ ㅤ ‎ ‎ ‎ㅤ ‎ ‎ ‎ ‎ ㅤ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ִ ✦
+![Visitors](https://komarev.com/ghpvc/?username=sillyaoi&label=losers&color=0E0D15) ㅤ ‎ ‎ ‎ ‎ ㅤ ‎ ‎ ‎ㅤ ‎ ‎ ‎ ‎ ㅤ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ִ ✦
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ︶⊹︶︶୨୧︶︶⊹︶
 
