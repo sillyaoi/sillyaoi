@@ -1,4 +1,4 @@
-<img width="720" height="405" alt="Image" src="https://github.com/user-attachments/assets/1f96facb-61df-4e4e-a2d9-b460f0b56643" />
+<img width="735" height="817" alt="Image" src="https://github.com/user-attachments/assets/6a327995-408c-4022-879a-587b2ea5a3b5" />
 
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ────────
@@ -11,7 +11,7 @@
 <a href="https://rentry.co/silverguns" target="_blank">ren </a> try  ‎
 
    
-![Visitors](https://komarev.com/ghpvc/?username=sillyaoi&label=(^o^♪)losers&color=FD8018) ㅤ ‎ ‎ ‎ ‎ ㅤ ‎ ‎ ‎ㅤ ‎ ‎ ‎ ‎ ㅤ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ִ ✦
+![Visitors](https://komarev.com/ghpvc/?username=sillyaoi&label=losers&color=00000) ㅤ ‎ ‎ ‎ ‎ ㅤ ‎ ‎ ‎ㅤ ‎ ‎ ‎ ‎ ㅤ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ִ ✦
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ︶⊹︶︶୨୧︶︶⊹︶
 
