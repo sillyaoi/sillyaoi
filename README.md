@@ -6,7 +6,7 @@
 
 
 <p align="center">
-<a href="https://angelsskiss.atabook.org/" target="_blank">ata </a> book  ‎ ‎ ‎ ‎ ㅤ<a href="https://aynaalwyn.straw.page"target="_blank">straw </a> page 
+<a href="" target="_blank">ata </a> book  ‎ ‎ ‎ ‎ ㅤ<a href="https://aynaalwyn.straw.page"target="_blank">straw </a> page 
 
 
    
