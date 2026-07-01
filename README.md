@@ -10,5 +10,4 @@
 
 
    
-![Visitors](https://komarev.com/ghpvc/?username=sillyaoi&label=losers&color=0E0D15) ㅤ ‎ ‎ ‎ ‎ ㅤ ‎ ‎ ‎ㅤ ‎ ‎ ‎ ‎ ㅤ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎
 ![losers](https://img.shields.io/badge/losers-67k-0E0D15)
